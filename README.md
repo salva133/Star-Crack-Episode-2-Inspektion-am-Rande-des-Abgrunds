@@ -25,7 +25,7 @@ Paris: Oh eh denn hab ich abgeschaltet, ich brauch ja nur den Bildschirm. Aber p
 
 J: Was? Wie? Chakotay, wieso sagen Sie nichts?!
 
-C: Ähm, wissen Sie doch Ma'am, ich bin auch nur ne Vertretung. Der echte Chakotay ist doch beim Paragliding auf dem Holodeck tödlich verunglückt. Sie können mich aber trotzdem Chakotay nennen. Und ich finde das Spiel cool. War mein Lieblingsspiel, daheim beim Maquis.
+C: Ähm, wissen Sie doch Ma'am, ich bin auch nur ne Vertretung. Der echte Chakotay ist doch beim Bergsteigen auf dem Holodeck tödlich verunglückt. Sie können mich aber trotzdem Chakotay nennen. Und ich finde das Spiel cool. War mein Lieblingsspiel, daheim beim Maquis.
 
 E: Captain Janeway ging stocksauer zu ihrem Sessel und setzte sich hin. Dann-
 
