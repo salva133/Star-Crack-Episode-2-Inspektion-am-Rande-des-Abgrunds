@@ -6,6 +6,7 @@ Janeway: Sternzeit 27475,237574 Wasweissichdennachholsdochdergeier! Die Brücken
 ## Brücke 1 - Paris
 
 [Janeway verlässt den Turbolift zur Brücke]
+
 Janeway: Was ist denn **das**?
 
 Erzähler: Ja, was **war** das? War Cpt. Janeway vom Alkohol blind geworden? Bis auf den Hauptschirm waren alle Konsolen abgeschaltet. Nur die Notbeleuchtungen schummerte schwach und erhellte die Szenerie. Vorne auf dem Pilotensitz saß Tom Paris, und hielt ein seltsames Gerät in den Händen.
