@@ -259,6 +259,8 @@ B'Elanna: GRÜN DU IDIOT!
 
 Crewman: Was?
 
+B'Elanna: Der Warpkern. Er ist grün!
+
 Warpkern: Hi!
 
 B'Elanna: Und der Warpkern spricht!
